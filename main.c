@@ -1,1 +1,0 @@
-progamação é bom demais
